@@ -1,0 +1,1 @@
+https://gelatinous-bayberry-9b3.notion.site/Design-Patterns-f060d65af596446492a88544b1d966ae
